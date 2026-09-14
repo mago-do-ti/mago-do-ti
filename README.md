@@ -1,1 +1,1 @@
-## Bem vindo(a) ao perfil do Mago do TI! 🧙🏻‍♂️✨
+## Seja bem vindo(a) ao perfil do Mago do TI! 🧙🏻‍♂️✨
