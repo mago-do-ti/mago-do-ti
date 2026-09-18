@@ -1,6 +1,6 @@
 ## Seja bem vindo(a) ao perfil do Mago do TI! 🧙🏻‍♂️✨
 
-Por enquanto sei poucas "magias", mas em breve saberei de várias <br>
+Por enquanto sei poucas "magias", mas em breve saberei de várias. <br>
 Acompanhe essa trajetória no repositório 'relatorio-diario'! <br>
 
 <div style="display: inline_block"> <br>          
